@@ -1,1 +1,1 @@
-# .profile
+Just another IT student trying their best.
