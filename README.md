@@ -1,1 +1,1 @@
-Just another IT student trying their best.
+Just another IT student showcasing their projects.
